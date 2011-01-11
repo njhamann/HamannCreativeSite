@@ -1,1 +1,1 @@
-This site will be my new personal and professional hub. More coming.}
+This site will be my new personal and professional hub. More coming.
